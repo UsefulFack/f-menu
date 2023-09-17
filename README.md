@@ -1,4 +1,5 @@
-🔥 Unleash the Power of F MENU 🔥
+🔥 Unleash the Power of F MENU 🔥 img logger not working sorry
+
 
 Introduction
 Welcome to F MENU, a blazingly powerful multitool designed to give you the upper hand in your digital battles. The red essence fuels your prowess as you harness the might of F MENU to assert dominance over your adversaries.
